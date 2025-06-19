@@ -46,6 +46,7 @@ Max Bet (with active bonus): 0.23 mBTC
 
 Bonus Expiry: 14 days
 
+[Bonus 50%+150FS](https://katsubet.partners/p57375a91)
 ---
 
 ## 🎲 7Bit Casino
@@ -89,6 +90,7 @@ Max Bet (with active bonus): 0.23 mBTC
 
 Bonus Expiry: 14 days
 
+[Bonus 50%+150FS](https://7bit.partners/pb60cdfe2)
 ---
 Personal Note:
 These are the only platforms I've continued using regularly due to smooth performance and fast withdrawals.
